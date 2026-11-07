@@ -1,16 +1,12 @@
-## Hi there 👋
-
-<!--
-**nyxchan1357/nyxchan1357** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+# hiii! im nyx! 
+(you may also know me as pc tan or d00rfr4m3!) 
+you can use any pronouns 
+## a quick important note!
+### Im shy even online so please be patient!
+### Im always willing to talk and make friends though it is hard for me to communicate first!
+# my interests
+my fandoms are the osc, tdi, and uh animes such as lucky star, madoka magica, k-on etc
+i listen to alot of Adrilenne lenker and vocaloid (big switch up hm?) :3
+Im a sharing pillow yumeshipper!!!
+# where am i typically and how often do i get on
+## im often in the osc area by the bottom of the map, the bakery, the caves, or on the party island. i normally only get on for a few hours only

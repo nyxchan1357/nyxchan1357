@@ -1,4 +1,4 @@
-# hiii! im nyx! 
+# hiii! im reed! 
 (you may also know me as pc tan or d00rfr4m3!) 
 you can use any pronouns 
 ## a quick important note!
